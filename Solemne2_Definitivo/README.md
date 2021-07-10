@@ -1,2 +1,0 @@
-# Solemne2_Definitiva
- 
